@@ -1,0 +1,2 @@
+# GlobalSolarCoin
+GlobalSolarCoin
